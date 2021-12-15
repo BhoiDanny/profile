@@ -3,7 +3,9 @@
 
 **Student at Ghana Communication Technology 
 
+
 #Repos are private for now
+
 > **Objective**
 >
 > My foremost concerns are object-oriented and user-centered studies. Extremely performed also in manipulating optical regime. A frequent contributor to system intensification or improvement.
