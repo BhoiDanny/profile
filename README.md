@@ -1,7 +1,7 @@
 ### SANNY TECH
 ![](Doctor%20and%20Medical%20Personal%20Profile%20LinkedIn%20Banner%20(1).gif)
 
-**Student at Ghana Communication Technology 
+**Student at Ghana Communication Technology**
 
 
 #Repos are private for now
