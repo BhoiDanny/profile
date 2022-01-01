@@ -4,7 +4,7 @@
 **Student at Ghana Communication Technology**
 
 
-#Repos are private for now
+# Repos are private for now
 
 > **Objective**
 >
